@@ -1,1 +1,1 @@
-##Bu loyiha Mirzohidniki
+Bu loyiha Mirzohidniki
